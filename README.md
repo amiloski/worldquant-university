@@ -1,1 +1,0 @@
-# worldquant-university
